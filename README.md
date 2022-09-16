@@ -1,4 +1,7 @@
-### Hi there 👋
+# João Vitor Amaral👊🏿​
+## sesi ![image](https://user-images.githubusercontent.com/113678427/190658482-b7ae3af0-0b4a-4a9f-b15f-5ef0b1fa7f63.png)
+
+
 
 <!--
 **joaoamaralzinho/joaoamaralzinho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
